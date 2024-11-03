@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Nedder Mohamed El Amine
+- 👀 I’m interested in Design, Code and singing
+- 🌱 I’m currently learning Ruby
+- 📫 How to reach me: @nowxw4 on all SM
+- 😄 Pronouns: Hey i don t ve one!!
+- ⚡ Fun fact: A lion is alfraid of a duck Y?... Y u even asking. ha ha ha
